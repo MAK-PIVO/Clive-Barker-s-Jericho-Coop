@@ -1,2 +1,3 @@
 # Clive-Barker-s-Jericho-Coop
-Clive Barker's Jericho Coop
+
+The release is coming soon, please wait.
